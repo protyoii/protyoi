@@ -1,0 +1,2 @@
+This portfolio is a complete representation of my academic background, professional experience, and research work in chemistry and pharmaceutical sciences. It highlights my skills in analytical R&D, computational chemistry, and data-driven drug discovery approaches. The site brings together my projects, publications, and technical expertise in a clear, structured format. 
+It is designed to provide a concise yet comprehensive overview of my profile for academic and professional opportunities.
